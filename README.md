@@ -1,6 +1,6 @@
 ### Hi, I'm Evan (he/him)!
 
-I'm currently looking for remote positions during the 21S and 21Su quarters. Please reach out to me on [LinkedIn](https://www.linkedin.com/in/evanbaldonado/).
+I'm currently looking for remote positions during spring 2021. Please reach out to me on [LinkedIn](https://www.linkedin.com/in/evanbaldonado/).
 
 Other profiles:
 
